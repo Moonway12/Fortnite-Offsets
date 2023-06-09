@@ -1,1 +1,1 @@
-Join Discord For The Lastest Fortnite Offsets https://discord.gg/gswchncGDw
+Join Discord For The Lastest Fortnite Offsets https://discord.gg/CGGB4Pwq
