@@ -1,1 +1,1 @@
-Join Discord For The Offsets https://discord.gg/JMaMkGr59z https://discord.gg/JMaMkGr59z
+Join Discord For The Offsets https://discord.gg/CGGB4Pwq
